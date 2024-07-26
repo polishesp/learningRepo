@@ -1,1 +1,1 @@
-# learningRepo
+# Paragon z warzywniaka
